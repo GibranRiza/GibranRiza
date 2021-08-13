@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GibranRiza
-- 👀 I’m interested in ...F1 Race
+- 👀 I’m interested in ...Formula 1
 - 🌱 I’m currently learning ...Nothing
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
